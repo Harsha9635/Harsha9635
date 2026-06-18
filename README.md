@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a youtuber!
+I'm a Student
 
 
 ## 🌐 Socials:
